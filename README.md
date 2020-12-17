@@ -1,0 +1,1 @@
+# fintech-patent-litigations
